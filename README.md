@@ -1,1 +1,1 @@
-[LINK](https://vanyalarin.github.io/pagesKickstarter/)
+[LINK](https://vanyalarin.github.io/pageKickstarter/)
